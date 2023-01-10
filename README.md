@@ -1,4 +1,4 @@
-### ⚜ Bem vindo (a) ao meu perfil! ⚜
+### ⚜ Bem vindo(a) ao meu perfil! ⚜
 #### ~ *Fernando* *Afonso* *Ribeiro*
 
 - 📚 Cursando: Técnico em Análise e Desenvolvimento de Sistemas
